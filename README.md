@@ -6,4 +6,4 @@ Eai galera eu sou o pato e basicamente gosto disso:
 - 🥁 toco muito bem bateira
 - 💼 pretendo me especializar em c#
 - 🧑‍🎓 to começando a estudar programação
-<img width="498" height="469" alt="image" src="https://github.com/user-attachments/assets/dde3df7e-e34e-40a9-9bba-17e4a81f8bc0" />
+<img https://media1.tenor.com/m/CgGUXc-LDc4AAAAC/hacker-pc.gif/>
